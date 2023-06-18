@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jayanthmahadesh777@gmail.com**
 
-- 📄 Know about my experiences [resume-jayanth.tiiny.site](https://resume-jayanth.tiiny.site/)
+- 📄 Know about my experiences [resume](https://resume-jayanth.tiiny.site/)
 
 - ⚡ Fun fact **Bananas are berries, but strawberries are not.**
 
