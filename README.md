@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jayanthmahadesh777@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/drive/u/0/my-drive)
+- 📄 Know about my experiences [resume](resume-jayanth.tiiny.site)
 
 - ⚡ Fun fact **Bananas are berries, but strawberries are not.**
 
