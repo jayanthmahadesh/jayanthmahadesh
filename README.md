@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm jayanth mahadesh</h1>
-<h3 align="center">backend developer</h3>
+<h3 align="center">full stack developer</h3>
 
 - 🌱 I’m currently learning **AWS , Docker**
 
